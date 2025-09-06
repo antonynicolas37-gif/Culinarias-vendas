@@ -1,2 +1,0 @@
-# Culinarias-vendas
-Culinária 
